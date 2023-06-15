@@ -2,7 +2,7 @@
 
 ## Contact:
 - Email: [drkedug@gmail.com](mailto:drkedug@gmail.com)
-- Celular: [+55 (43) 9 8473-1214](https://web.whatsapp.com/send?phone=5532991982237)
+- Celular: [+55 (43) 9 8473-1214](https://web.whatsapp.com/send?phone=5543984731214)
 - GitHub: [drkedug](https://github.com/drkedug)
 - Linkedin: [linkedin.com/in/derek-eduardo-goncalves](https://www.linkedin.com/in/derek-eduardo-gon%C3%A7alves-57026a150/)
 - Pretensão salarial: $ 3.500 PJ
